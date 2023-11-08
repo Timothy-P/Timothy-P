@@ -3,3 +3,5 @@ I've finished many projects, but I just haven't put them on GitHub. I also have 
 I do have Discord, so please don't hesitate to bother me there. I also need sponsors so I can continue making stuff because I can't buy stuff. If anyone is willing to sponsor me, please do. It'll be below this line. And, have a good day, you deserve it if you've been a good human today.
 
 Discord: Dragenkillergem
+
+Patreon: patreon.com/user?106417947
